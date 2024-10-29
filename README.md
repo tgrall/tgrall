@@ -4,7 +4,7 @@ I am Tug, passionate developer and solutions engineer at GitHub!
 
 When not working I am developing [WindR 🤙](https://windr.org/).
 
-My conent : My [Blog](https://tgrall.github.io/blog) & [YouTube Channel](https://youtube.com/@UCA1kgHJTFZW-MRcr8KX_QYQ).
+My content : My [Blog](https://tgrall.github.io/blog) & [YouTube Channel](https://youtube.com/@UCA1kgHJTFZW-MRcr8KX_QYQ).
 
 
 ## 🌐 Socials:
